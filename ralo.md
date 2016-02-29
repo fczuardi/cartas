@@ -73,7 +73,7 @@ O ralo do banheiro
     O produto tem nome de monstro
     por causa do barulho que faz
     Deve ser usado por adultos
-    e as crianças, ficar para trás
+    e as crianças, devem ficar para trás
 
 -----
 
