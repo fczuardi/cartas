@@ -39,8 +39,7 @@ O ralo do banheiro
 
 ----
 
-    Mas problemas acontecem.
-    E as vezes para nossa surpresa
+    Mas as vezes para nossa surpresa
     a sujeira se acumula 
     recusa-se a ir embora, fica presa
 
