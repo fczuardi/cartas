@@ -41,7 +41,7 @@ O ralo do banheiro
 
     Mas as vezes para nossa surpresa
     a sujeira se acumula 
-    recusa-se a ir embora, fica presa
+    recusa-se a ir, fica presa
 
 ----
 
