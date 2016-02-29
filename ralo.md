@@ -66,7 +66,7 @@ Ralo entupido
 
     Três colheres de uns cristais perigosos
     misturadas com água muito quente
-    é o suficiente para em poucos minutos
+    é o suficiente para em pouco tempo
     tirar a barreira nojenta da frente
 
 -----
