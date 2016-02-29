@@ -46,4 +46,36 @@ recusa-se a ir embora, fica presa
 
 ----
 
-TBD
+Existem duas alternativas 
+para este problema solucionar
+A primeira é o desemtupidor
+que empurra a sujeira
+utilizando a pressão do ar.
+
+----
+
+Mas se apenas o ar não for o bastante
+E a sujeira impossível de empurrar
+Podemos com a ajuda da química,
+este obstáculo desintegrar
+
+----
+
+Três colheres de uns cristais perigosos
+misturadas com água muito quente
+é o suficiente para em poucos minutos
+tirar a barreira nojenta da nossa frente
+
+-----
+
+O pó tem nome de monstro
+por causa do barulho que faz
+Tem que ser usado por adultos
+e as crianças devem ficar para trás
+
+-----
+
+Ralo entupido é uma chatice
+um problema, uma encheção
+Mas como a maioria dos problemas
+este é um que tem solução.
