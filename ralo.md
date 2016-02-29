@@ -11,7 +11,7 @@ O ralo do banheiro
 
 -----
 
-    A sujeira que limpamos
+    A sujeira que limpo
     Com água, xampu e sabão
     Desce livre até o esgoto
     Percorrendo a tubulação
