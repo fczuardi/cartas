@@ -3,9 +3,7 @@ O ralo do banheiro
 
     O ralo do meu banheiro é assim.
     Quadrado e cheio de "furim".
-
-[imagem]
-
+    
     Serão mais de vinte furos
     Se decidirmos contar
     Eles levam a àgua do banho
@@ -24,8 +22,6 @@ O ralo do banheiro
     Células da pele, poeira do banheiro.
     Titica de nariz, insetos mortos,
     e sempre muitos fios de cabelo.
-
-----
 
     É uma tremenda nojeira, 
     se pararmos para pensar
