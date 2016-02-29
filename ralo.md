@@ -23,7 +23,6 @@ O ralo do banheiro
     poeira do banheiro.
     
     Titica de nariz, 
-    insetos mortos,
     e sempre muitos fios de cabelo.
 
 -----
