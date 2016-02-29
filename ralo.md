@@ -19,6 +19,7 @@ O ralo do banheiro
 -----
 
     Com a água, muita coisa se vai:
+
     Células da pele, 
     poeira do banheiro.
     
@@ -30,7 +31,7 @@ O ralo do banheiro
     Levar os dejetos,
     para longe do meu abrigo
     É a função deste duto
-    que eu chamo de cano,
+    que eu chamo de **cano**,
     meu fiel amigo
 
     Cano largo, tem vazão
@@ -38,7 +39,7 @@ O ralo do banheiro
 
 ----
 
-    Mas as vezes
+    Mas às vezes
     Ah que ingrata surpresa!
     A sujeira acumula,
     recusa-se a ir, 
@@ -47,7 +48,7 @@ O ralo do banheiro
 ----
 
     Existem duas alternativas 
-    para este problema solucionar
+    para o problema solucionar
 
     A primeira é o desemtupidor
     que empurra a sujeira
@@ -56,17 +57,17 @@ O ralo do banheiro
 ----
     
     Mas se desentupir com o ar
-    possível não for
+    não for possível
     
     Com a ajuda da Química
-    podemos este obstáculo transpor
+    este obstáculo é transponível
 
 ----
 
     Três colheres de uns cristais perigosos
     misturadas com água muito quente
     é o suficiente para em poucos minutos
-    tirar a barreira nojenta da nossa frente
+    tirar a barreira nojenta da frente
 
 -----
 
