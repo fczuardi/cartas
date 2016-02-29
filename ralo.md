@@ -28,11 +28,11 @@ O ralo do banheiro
 
 -----
 
-    É uma tremenda nojeira, 
-    se pararmos para pensar
-
-    Ainda bem que o cano existe,
-    e dos dejetos podemos nos livrar
+    Levar os dejetos,
+    para longe do meu abrigo
+    É a função deste duto
+    que eu chamo de cano,
+    meu fiel amigo
 
     Cano largo, tem vazão
     sujeira e pêlos, dificilmente voltarão
