@@ -18,7 +18,7 @@ O ralo do banheiro
 
 -----
 
-    Com a água, muita coisa vai embora:
+    Com a água, muita coisa se vai:
     Células da pele, 
     poeira do banheiro.
     
