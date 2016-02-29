@@ -19,16 +19,20 @@ O ralo do banheiro
 -----
 
     Com a água, muita coisa vai embora:
-    Células da pele, poeira do banheiro.
-    Titica de nariz, insetos mortos,
+    Células da pele, 
+    poeira do banheiro.
+    
+    Titica de nariz, 
+    insetos mortos,
     e sempre muitos fios de cabelo.
+
+-----
 
     É uma tremenda nojeira, 
     se pararmos para pensar
+
     Ainda bem que o cano existe,
     e dos dejetos podemos nos livrar
-
------
 
     Cano largo, tem vazão
     sujeira e pêlos, dificilmente voltarão
@@ -37,19 +41,21 @@ O ralo do banheiro
 
     Mas as vezes para nossa surpresa
     a sujeira se acumula 
-    recusa-se a ir, fica presa
+    recusa-se a ir, 
+    fica presa
 
 ----
 
     Existem duas alternativas 
     para este problema solucionar
+
     A primeira é o desemtupidor
     que empurra a sujeira
-    utilizando a pressão do ar.
+    usando a pressão do ar.
 
 ----
 
-    Mas se apenas o ar não for o bastante
+    Mas se o ar não for o bastante
     E a sujeira impossível de empurrar
     Podemos com a ajuda da química,
     este obstáculo desintegrar
