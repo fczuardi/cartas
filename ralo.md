@@ -54,11 +54,12 @@ O ralo do banheiro
     usando a pressão do ar.
 
 ----
-
-    Mas se o ar não for o bastante
-    E a sujeira impossível de empurrar
-    Podemos com a ajuda da química,
-    este obstáculo desintegrar
+    
+    Mas se desentupir com o ar
+    possível não for
+    
+    Com a ajuda da Química
+    podemos este obstáculo transpor
 
 ----
 
@@ -71,8 +72,8 @@ O ralo do banheiro
 
     O produto tem nome de monstro
     por causa do barulho que faz
-    Tem que ser usado por adultos
-    e as crianças devem ficar para trás
+    Deve ser usado por adultos
+    e as crianças, ficar para trás
 
 -----
 
