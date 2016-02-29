@@ -38,8 +38,9 @@ O ralo do banheiro
 
 ----
 
-    Mas as vezes para nossa surpresa
-    a sujeira se acumula 
+    Mas as vezes
+    Ah que ingrata surpresa!
+    A sujeira acumula,
     recusa-se a ir, 
     fica presa
 
