@@ -82,3 +82,8 @@ Ralo entupido
     um problema, uma encheção
     Mas como a maioria dos problemas
     este é um que tem solução.
+   
+   FIM 
+---
+
+Ilustrações em: http://imgur.com/a/y1aE8
