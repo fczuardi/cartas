@@ -50,7 +50,7 @@ Ralo entupido
     Existem duas alternativas 
     para o problema solucionar
 
-    A primeira é o desemtupidor
+    A primeira é o desentupidor
     que empurra a sujeira
     usando a pressão do ar.
 
